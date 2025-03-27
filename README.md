@@ -1,1 +1,0 @@
-# aylinbalci.github.io
